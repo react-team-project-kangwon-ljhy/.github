@@ -32,7 +32,9 @@ How Can Be ()
 
 ### 📺 시연영상 & 발표자료
 
-[시연영상](http://naver.me/5YFuPlt1)<br/>
+[시연영상](https://youtu.be/7X-8ACfAoPA)
+<br>
+<br>
 [발표자료](http://naver.me/GL8fvkkj)
 
 ## 🔎 페이지 살펴보기
